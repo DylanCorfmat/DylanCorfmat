@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DylanCorfmat
+- 👀 I’m interested in art, photography, cooking and of course programming !
+- 💞️ I’m looking to collaborate on creative projects : new social medias, artistic content, new platform type...
+- 📫 How to reach me :
+  - dylan.corfmat@gmail.com
+  - dylancorfmat.fr
